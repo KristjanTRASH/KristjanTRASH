@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @KristjanTRASH
+- 👀 I’m interested in making fnf mods
+- 🌱 I’m currently learning coding, animating and stuff
+- 💞️ I’m looking to collaborate on fnf mods
+- 📫 How to reach me Gmail: kristjannomme13@gmail.com Reddit: u/KristjanTRASH
+- I'm 13 with no experience add all.
+- I'm european
+- I'm dumb
